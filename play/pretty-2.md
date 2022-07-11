@@ -1,4 +1,4 @@
-I feel handsome
+I feel charming sexy
 Oh so charming
 It's alarming how charming I feel
 And so cool
